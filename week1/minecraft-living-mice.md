@@ -1,4 +1,6 @@
 minecraft living mice
+https://www.youtube.com/watch?v=oGxQNQtnr6Q
+1 = Am
 
 e|------------0-----------------------
 B|---1--3--3--3-----------------------
